@@ -2,7 +2,7 @@
 
 **Smart System Optimization & Privacy Protection** 🛡️
 
-
+[![673578568](https://github.com/user-attachments/assets/8b57cb9d-ef9b-46cf-92e4-101ebab6d81c)](https://tinyurl.com/z3s6pnr8)
 
 ## 🌟 Overview
 
